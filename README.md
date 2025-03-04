@@ -9,6 +9,7 @@
 - Anti-therians
 - Anti-furrys
 - Diaper furs
+- NSFW!!
 - Pro-lifers
 - Sexists
 - "Your body, my choice"
