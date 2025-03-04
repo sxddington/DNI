@@ -1,2 +1,15 @@
 # DNI
-Proshippers, darkshippers, lolicons, shotacons, groomers, zoophiles, homophobes, transphobes, anti-therians, anti-furrys, diaper furs, pro-lifers, sexists, "your body, my choice", under 10.
+- Proshippers
+- Darkshippers
+- Lolicons
+- Shotacons
+- Zoophiles
+- Homophobes
+- Transphobes
+- Anti-therians
+- Anti-furrys
+- Diaper furs
+- Pro-lifers
+- Sexists
+- "Your body, my choice"
+- Under 10 years of age
