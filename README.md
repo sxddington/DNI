@@ -1,17 +1,17 @@
 # DNI
-- **Proshippers**
-- **Darkshippers**
-- **Lolicons**
-- **Shotacons**
-- **Zoophiles**
+- _**Proshippers**_
+- _**Darkshippers**_
+- _**Lolicons**_
+- _**Shotacons**_
+- _**Zoophiles**_
 - Homophobes
 - Transphobes
 - Anti-therians
 - Anti-furrys
-- **Diaper furs**
-- **NSFW**
-- **Pro-lifers**
-- **Ableists**
-- **Sexists**
-- **"Your body, my choice"**
+- _**Diaper furs**_
+- _**NSFW**_
+- _**Pro-lifers**_
+- _**Ableists**_
+- _**Sexists**_
+- _**"Your body, my choice"**_
 - Under 10 years of age
